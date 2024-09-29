@@ -1,0 +1,4 @@
+- :👋: Hi, I’m @xic44444
+- :👁️: I’m interested in developer
+- :🌱: I’m currently learning rage multiplayer code and fivem code
+- :📩: How to reach me by adding me on discord xic44444
